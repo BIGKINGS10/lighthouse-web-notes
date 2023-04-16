@@ -1,1 +1,1 @@
-# [Kingsley]'s Note
+# Kingsley's Note
